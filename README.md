@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @marleneRomanGalindo
 - 👀 I’m interested in an opportunity in Data analysis...
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on  big enterprise
-- 📫 How to reach me csarlettrg@gmail.com
+- 💞️ I’m looking to collaborate on anywhere
+- 📫 How to reach me scarlettrg@gmail.com
 - 😄 Pronouns: ..she
 - ⚡ Fun fact: ...
 
