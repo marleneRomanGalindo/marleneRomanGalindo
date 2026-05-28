@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anywhere
 - 📫 How to reach me scarlettrg@gmail.com
 - 😄 Pronouns: ..she
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:  I love to help people
 
 <!---
 marleneRomanGalindo/marleneRomanGalindo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
