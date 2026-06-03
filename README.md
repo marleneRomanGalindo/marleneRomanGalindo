@@ -5,6 +5,7 @@
 - 📫 How to reach me scarlettrg@gmail.com
 - 😄 Pronouns: ..she
 - ⚡ Fun fact:  I love to help people
+- cursos en: https://www.credly.com/users/marlen-roman-galindo
 
 <!---
 marleneRomanGalindo/marleneRomanGalindo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
